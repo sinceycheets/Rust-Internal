@@ -13,3 +13,4 @@ only selling it to 1 user before i leave com, this project can make u tons of mo
 so if u buy it i will delete it from my pc and the project will only be yours.
 
 for more information dm me in discord: sincey86
+i accept crypto and paypal only.
